@@ -1,1 +1,0 @@
-# RIFAsolid-ria006
